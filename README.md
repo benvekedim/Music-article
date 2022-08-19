@@ -2,7 +2,7 @@
 
 
 
-There is music in every aspect of our lives; When we want to have fun, relax or remember the memories that it evokes to us, etc., etc., we listen to music because it is one of the most beautiful tools that express our emotions. When we start listening to music, almost all parts of our brain are affected.
+There is music in every aspect of our lives; We listen to music when we want to have fun, relax or recall memories that it evokes to us, and so on. Because it is one of the most beautiful tools that express our emotions. When we start listening to music, almost all parts of our brain are affected.
 
 
 At the same time, music is one of the best ways to understand and express emotions. A study in this area found something like this:
